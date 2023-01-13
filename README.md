@@ -37,6 +37,8 @@ Switch to drawing mode from design mode
 
 ## OUTPUT
 
+![KARTHICK 5 2 CHAIR_page-0001 (3)](https://user-images.githubusercontent.com/121215938/212291856-d5758d76-5602-40d2-9617-7d150edda199.jpg)
+
 
 
 
